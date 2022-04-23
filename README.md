@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @drcsanswerkey (aka Dr. C's Answer Key)
 - 👀 I’m interested in (almost) all things tech...
 - 🌱 I’m currently learning anything I can...
-- 📫 How to reach me: drcsanswerkey - at - protonmail dottus commus (de-latinized utique)
+- 📫 Questions or consulting? Hit me up here: drcsanswerkey - at - protonmail dottus commus (de-latinized utique)
 - Walkthrough videos for sale here: https://doctor-s-school-8935.thinkific.com/
 
 <!---
