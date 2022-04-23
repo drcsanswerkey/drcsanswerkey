@@ -2,6 +2,7 @@
 - 👀 I’m interested in (almost) all things tech...
 - 🌱 I’m currently learning anything I can...
 - 📫 How to reach me: drcsanswerkey - at - protonmail dottus commus (de-latinized utique)
+- Walkthrough videos for sale here: https://doctor-s-school-8935.thinkific.com/
 
 <!---
 drcsanswerkey/drcsanswerkey is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
